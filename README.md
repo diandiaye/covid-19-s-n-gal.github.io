@@ -1,0 +1,1 @@
+# covid-19-s-n-gal.github.io
